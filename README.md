@@ -12,4 +12,4 @@ Mahallenin tadını kaçırmadan, bu teknoloji ile bireylerin günlük hayatlar�
 Bu da demek oluyor ki, Freud ve Kant bir kahvede oturup size bekliyor özel tavsiyelerde bulunmak için, 
 yapay zeka destekli terapi uygulamaları sizin yanınızda, her an hazır
 
-# Peygamberimiz her gece istirahate çekileceği zaman İhlâs ve Muavvizeteyn (Felak ve Nas) sûrelerini okuyup avuçlarına üfler, sonra ellerinin yetişebildiği yere kadar vücudunun her tarafını meshederdi
+# Peygamberimiz her gece istirahate çekileceği zaman Felak ve Nas sûrelerini okuyup avuçlarına üfler, sonra ellerinin yetişebildiği yere kadar vücudunun her tarafını meshederdi
