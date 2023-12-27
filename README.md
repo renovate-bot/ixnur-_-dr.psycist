@@ -1,11 +1,9 @@
 # Freud ve Kant mahalleye gelmiş. 
 
 Freud'un derinlemesine psikanaliz ve Kant'ın etik ilkeleri gibi önemli düşünce akımları artık sizinle. 
+
 # Tüm hastalara Allah şifa versin.
-
 Bu uygulamam umarım üfürükcü hocalar yerine önce Allaha sonra bilime olan inancınızı geliştitir.
-# Allah'tan af ve afiyet (sağlık) isteyiniz. Zira bir kula, yakin derecesindeki bir imandan sonra, afiyetten (sağlıktan) daha hayırlı bir şey verilmemiştir.
-
 
 Düşünsenize, Freud'un divanına uzanmışçasına, yapay zeka algoritmaları size özel bir şekilde duygusal dünyanızı anlamak ve rehberlik etmek üzere tasarlanıyor. 
 Kant'ın etik felsefesi, yapay zekanın terapötik önerilerdeki etik çerçeveyi oluşturuyor.
