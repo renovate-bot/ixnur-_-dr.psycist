@@ -1,6 +1,4 @@
-Psikolojik terapiyi yapay zeka ile harmanlamak, sanki Freud ve Kant mahalleye gelmiş gibi bir deneyim yaratıyor. 
-
-*Bu yeni çağda, yapay zeka destekli terapi uygulamaları, 
+#Freud ve Kant mahalleye gelmiş. 
 
 Freud'un derinlemesine psikanaliz ve Kant'ın etik ilkeleri gibi önemli düşünce akımları artık sizinle. 
 
