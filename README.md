@@ -1,4 +1,4 @@
-#Freud ve Kant mahalleye gelmiş. 
+# Freud ve Kant mahalleye gelmiş. 
 
 Freud'un derinlemesine psikanaliz ve Kant'ın etik ilkeleri gibi önemli düşünce akımları artık sizinle. 
 
